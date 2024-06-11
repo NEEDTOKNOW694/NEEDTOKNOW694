@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @NEEDTOKNOW694
-- 👀 I’m interested in .coding cyber security web development ..
-- 🌱 I’m currently learning ...c language 
 🎅 lookin for some tips and new information 
 .
 
