@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NEEDTOKNOW694
-🎅 lookin for some tips and new information 
+🎅 looking for some tips and new information 
 .
 
 <!---
